@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @neow10
-- 👀 I’m interested in Video Games, Animé etc.
+- 👀 I’m interested in Programming
 - 🌱 I’m currently learning Programming and Digital art
 - 💞️ I’m looking to collaborate on Video Game Creation
 - 📫 How to reach me Via Discord: Dweamy#8627
